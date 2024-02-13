@@ -1,8 +1,5 @@
 
 
-Figma Design: https://www.figma.com/file/oSk3FEZ7qJOTtRjKUJgYDW/Restaurant-Landing-Page-Project-For-Youtube?type=design&node-id=0-1&mode=design&t=yNpMegJ6Dt9sDA5U-0
-
-
 
 
 
